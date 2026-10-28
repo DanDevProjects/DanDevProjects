@@ -1,7 +1,7 @@
 # HIIIIIIIIII
 I am a "creative" vibe coder 👍
 
-My projects are good so please go download git clone or download them
+My projects are useful and maybe sometimes good so please go download git clone or download them
 
 My website is a google sites site I don't want to pay and its written down in my email section on the account info
 <p>
@@ -9,4 +9,4 @@ My website is a google sites site I don't want to pay and its written down in my
 </p>
 
 
-uh be creative like me (:
+uh be creative like me (: and I hope I get a little attention
